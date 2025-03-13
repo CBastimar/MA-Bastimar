@@ -1,1 +1,1 @@
-Für die vollständige Freischaltung des Frameworks ist eine Anfrage unter cem.bastimar@gmail.com oder bei meinem Betreuer steinnagel@ipeg.uni-hannover.de notwendig.
+Für die vollständige Freischaltung des Frameworks ist eine Anfrage unter steinnagel@ipeg.uni-hannover.de notwendig.
